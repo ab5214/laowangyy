@@ -1,5 +1,5 @@
 # laowangyy
-# 【地址一】 ：http://www.ggff53.com
+# 【地址一】 ：http://www.hhxx53.com
 # 【地址二】 ：http://www.fgyy99.com
 # 【地址三】 ：http://www.hhppgg.com
 # 【邮箱联系方式】 ：yytv8090@gmail.com
