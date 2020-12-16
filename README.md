@@ -1,7 +1,7 @@
 ### :sunglasses::sunglasses:（老王yy.com）:sunglasses::sunglasses:
-### 【地址一】  http://www.hhss54.xyz
-### 【地址二】  http://www.hhss55.xyz
-### 【地址三】  http://www.hhss56.xyz
+### 【地址一】  http://www.baihea.xyz
+### 【地址二】  http://www.baiheb.xyz
+### 【地址三】  http://www.baihec.xyz
 ### 【邮箱联系方式】  yytv8090@gmail.com
 ### :heart: :point_right:【永久域名】  http://www.laowangyy.com
 ### QQ或者微信点不开以上链接请用手机浏览器打开！
