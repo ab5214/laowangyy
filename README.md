@@ -1,8 +1,8 @@
 ### :sunglasses::sunglasses:（老王yy.com）:sunglasses::sunglasses:
-### 【地址一】  https://kanpa.xyz/
-### 【地址二】  https://kanpb.xyz/
-### 【地址三】  https://xvs01.xyz/
-### 【地址四】  https://xvs02.xyz/
+### 【地址一】  https://xvs01.xyz/
+### 【地址二】  https://xvs02.xyz/
+### 【地址三】  https://kanpa.xyz/
+### 【地址四】  https://kanpb.xyz/
 ### 【地址五】  https://gaojib.xyz/
 ### 【地址六】  https://gaojic.xyz/
 ### 【邮箱联系方式】  yytv8090@gmail.com
