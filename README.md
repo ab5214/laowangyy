@@ -2,8 +2,8 @@
 ### :sunglasses::sunglasses:（老王yy.com）:sunglasses::sunglasses:
 ### 【地址一】  http://xvs11.xyz/
 ### 【地址二】  http://xvs12.xyz/
-### 【地址三】  http://gaoji7.xyz/
-### 【地址四】  http://gaoji8.xyz/
+### 【地址三】  http://kanp7.xyz/
+### 【地址四】  http://kanp8.xyz/
 ### 【地址五】  http://gaoji7.xyz/
 ### 【地址六】  http://gaoji8.xyz/
 ### 【邮箱联系方式】  yytv8090@gmail.com
