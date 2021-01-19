@@ -2,7 +2,7 @@
 ### :sunglasses::sunglasses:（老王yy.com）:sunglasses::sunglasses:
 ### 【地址一】  http://xvs15.xyz/
 ### 【地址二】  http://xvs16.xyz/
-### 【地址三】  http://kanp7.xyz/
+### 【地址三】  http://kanp9.xyz/
 ### 【地址四】  http://kanp10.xyz/
 ### 【地址五】  http://gaoji9.xyz/
 ### 【地址六】  http://gaoji10.xyz/
