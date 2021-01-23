@@ -1,7 +1,7 @@
 ### 永久地址laowangyy.com
 ### :sunglasses::sunglasses:（老王yy.com）:sunglasses::sunglasses:
 ### 【地址一】  http://xvs15.xyz/
-### 【地址二】  http://xvs16.xyz/
+### 【地址二】  http://xvs18.xyz/
 ### 【地址三】  http://kanp15.xyz/
 ### 【地址四】  http://kanp10.xyz/
 ### 【地址五】  http://gaoji9.xyz/
