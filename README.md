@@ -4,7 +4,7 @@
 ### 【地址二】  https://xvs23.buzz/
 ### 【地址三】  https://kanp17.buzz/
 ### 【地址四】  https://kanp22.buzz/
-### 【地址五】  https://gaoji21.xyz/
+### 【地址五】  https://gaoji22.xyz/
 ### 【地址六】  https://gaoji21.buzz/
 ### 【邮箱联系方式】  yytv8090@gmail.com
 ### :heart: :point_right:【永久域名】  http://www.laowangyy.com
