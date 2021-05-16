@@ -1,6 +1,6 @@
 ### 永久地址laowangyy.com
 ### :sunglasses::sunglasses:（老王yy.com）:sunglasses::sunglasses:
-### 【看片地址一】  https://xvs28.buzz/
+### 【看片地址一】  https://xvs29.buzz/
 ### 【看片地址二】  https://xvs27.buzz/
 ### 【看片地址三】  https://kanp24.xyz/
 ### 【看片地址四】  https://kanp22.buzz/
