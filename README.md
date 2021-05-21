@@ -2,7 +2,7 @@
 ### :sunglasses::sunglasses:（老王yy.com）:sunglasses::sunglasses:
 ### 【看片地址一】  https://qq.com.xvs29.icu/
 ### 【看片地址二】  https://qq.com.xvs30.buzz/
-### 【看片地址三】  https://kanp24.xyz/
+### 【看片地址三】  https://qq.com.kanp24.buzz/
 ### 【看片地址四】  https://kanp22.buzz/
 ### 【看片地址五】  https://gaoji22.xyz/
 ### 【看片地址六】  https://gaoji21.buzz/
