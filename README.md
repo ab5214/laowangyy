@@ -1,9 +1,9 @@
 ### 永久地址laowangyy.com
 ### :sunglasses::sunglasses:（老王yy.com）:sunglasses::sunglasses:
-### 【看片地址一】  https://qq.com.xvs29.icu/
-### 【看片地址二】  https://qq.com.xvs30.buzz/
+### 【看片地址一】  https://qq.com.xvs30.icu/
+### 【看片地址二】  https://qq.com.xvs31.buzz/
 ### 【看片地址三】  https://qq.com.kanp24.buzz/
-### 【看片地址四】  https://kanp22.buzz/
+### 【看片地址四】  https://qq.com.kanp24.cc/
 ### 【看片地址五】  https://gaoji22.xyz/
 ### 【看片地址六】 https://qq.com.gaoji23.buzz/
 ### 【邮箱联系方式】  yytv8090@gmail.com
