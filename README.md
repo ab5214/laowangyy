@@ -4,7 +4,7 @@
 ### 【看片地址二】  https://qq.com.xvs32.buzz/
 ### 【看片地址三】  https://qq.com.kanp29.buzz/
 ### 【看片地址四】  https://qq.com.kanp26.buzz/
-### 【看片地址五】  https://gaoji22.xyz/
+### 【看片地址五】 https://qq.com.gaoji24.buzz/
 ### 【看片地址六】 https://qq.com.gaoji23.icu/
 ### 【邮箱联系方式】  yytv8090@gmail.com
 ### :heart: :point_right:【永久域名】  http://www.laowangyy.com
