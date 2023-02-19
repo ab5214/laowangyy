@@ -1,8 +1,8 @@
 ### 永久地址laowangyy.life
 ### :sunglasses::sunglasses:（老王yy.life）:sunglasses::sunglasses:
-### 【看片地址一】  https:// xdz02.cc
-### 【看片地址二】  https:// xdz04.cc
-### 【看片地址三】  https:// xdz06.cc
+### 【看片地址一】  https://xdz02.cc
+### 【看片地址二】  https://xdz04.cc
+### 【看片地址三】  https://xdz06.cc
 ### 【看片地址四】  https://qq.com.kpa01.icu
 ### 【看片地址五】 https://qq.com.xva08.top
 ### 【看片地址六】 https://qq.com.xva08.xyz
