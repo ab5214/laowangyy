@@ -1,11 +1,11 @@
 ### 永久地址laowangyy.life
 ### :sunglasses::sunglasses:（老王yy.life）:sunglasses::sunglasses:
-### 【看片地址一】  https://xdz02.cc
+### 【看片地址一】  https://xdz11.cc
 ### 【看片地址二】  https://xdz10.cc
-### 【看片地址三】  https://xdz06.cc
+### 【看片地址三】  https://xdz12.cc
 ### 【看片地址四】  https://qq.com.kpa01.icu
-### 【看片地址五】 https://qq.com.xva08.top
-### 【看片地址六】 https://qq.com.xva08.xyz
+### 【看片地址五】 https://qq.com.xva11.top
+### 【看片地址六】 https://qq.com.xva11.xyz
 ### 【邮箱联系方式】  yytv8090@gmail.com
 ### :heart: :point_right:【永久域名】  http://www.laowangyy.life
 ### QQ或者微信点不开以上链接请用手机浏览器打开！
